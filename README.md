@@ -3,7 +3,7 @@ hwefc- 👋 Hi, I’m @seweretwq
 - 🌱 I’m currently learning ...87
 - 💞️ I’m looking to collaborate on ...132
 - 📫 How to reach me ...33fsdds86wer
-- ⚡ Fun fact: ...444gl54
+- ⚡ Fun fact: ...444gl546663
 erresdfasdsf
 <!---hjl454545tweewte
 seweretwq/seweretwq is a ✨ special ✨ repositorrhy because its64 `README.md5354` (this file) appears on your 6363GitHub profile.455
