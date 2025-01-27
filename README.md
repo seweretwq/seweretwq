@@ -2,7 +2,7 @@ hwefc- 👋 Hi, I’m @seweretwq
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...87
 - 💞️ I’m looking to collaborate on ...132
-- 📫 How to reach me ...33fsdds86wer
+- 📫 How to reach me ...33fsdds86werk,k,
 - ⚡ Fun fact: ...444gl5466636932222
 erresdfasdsf52
 <!---hjl454545tweewte596
