@@ -1,5 +1,5 @@
-hwefc- 👋 Hi, I’m @seweretwq
-- 👀 I’m interested in ...
+refhwefc- 👋 Hi, I’m @seweretwq
+- 👀 I’m interested in ...fre
 - 🌱 I’m currently learning ...87
 - 💞️ I’m looking to collaborate on ...132vsd
 - 📫 How to reach me ...33fsdds86werk,k,
