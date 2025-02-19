@@ -1,4 +1,4 @@
-ssdrefhwefc- 👋 Hi, I’m @seweretwq
+asdssdrefhwefc- 👋 Hi, I’m @seweretwq
 - 👀 I’m interested in ...fre
 - 🌱 I’m currently learning ...87
 - 💞️ I’m looking to collaborate on ...132vsd
