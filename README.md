@@ -2,7 +2,7 @@ asdssdrefhwefc- 👋 Hi, I’m @seweretwq
 - 👀 I’m interested in ...fre
 - 🌱 I’m currently learning ...87
 - 💞️ I’m looking to collaborate on ...132vsd
-- 📫 How to reach me ...33fsdds86werk,k,bfvcv2662dfvs
+- 📫 How to reach me ...33fsdds86werk,k,bfvcv2662dfvs52
 - ⚡ Fun fact: ...444gl546663693222226552
 erresdfasdsf52354125
 <!---hjl454545tweewte596
