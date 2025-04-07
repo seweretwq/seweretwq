@@ -3,7 +3,7 @@ m51asdssdrefhwefc- 👋 Hi, I’m @seweretwq56
 - 🌱 I’m currently learning ...8726
 - 💞️ I’m looking to collaborate on ...121gregrebfgfg12312nbnm
 - 📫 How to reach me ...33fsdds86werk,k,bfvcv2662dfvs52636236fxasmhjghxcfbbdf
-- ⚡ Fun fact: ...444gl54666369322222655236egr
+- ⚡ Fun fact: ...444gl54666369322222655236egrdsffdsfds
 erresdfasdsf5235412531212
 <!---hjl454545tweewte59662ewfdsdsmhf03
 seweretwq/seweretwq is a ✨ special ✨ repositorrhy because its64 `README.md5354` (this file) appears on your 6363GitHub profi1wer211jmm2dfdf3le.455
