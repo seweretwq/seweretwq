@@ -1,7 +1,7 @@
 resdddfggfgfbnmbnm51asdssdrefhwefc- 👋 Hi, I’m @seweretwq56
 - 👀 I’m interested in ...fre
 - 🌱 I’m currently learning ...8726
-- 💞️ I’m looking to collaborate on ...121gregrebfgfg12312nbnmbggfbfgf
+- 💞️ I’m looking to collaborate on ...121gregrebfgfg12312nbnmbggfbfgf96+626
 - 📫 How to reach me ...33fsdds86werk,k,bfvcv2662dfvs52636236fxasmhjghxcfbbdf625ewwesdfsddsffdsrefrefrenhg
 - ⚡ Fun fact: ...444gl54666369322222655236egrdsffdsfdsafsdsdsdhtrgfgb
 erresdfasdsf5235412531212rtggtrrtwerwwghn
