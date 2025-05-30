@@ -1,7 +1,7 @@
 gegerrenhjjnresdddfggfgfbnmbnm51asdssdrefhwefc- 👋 Hi, I’m @seweretwq56gdfdf
 - 👀 I’m interested in ...fregdfdgdfg
 - 🌱 I’m currently learning ...8726dfdgfgfdgdg
-- 💞️ I’m looking to collaborate on ...121gregrebfgfg12312nbnmbgthtdggffd
+- 💞️ I’m looking to collaborate on ...121gregrebfgfg1231sdfddsds
 - 📫 How to reach me ...33fsdds86werk,k,bfvcv2662dfvs52636236fxasmhjghxcfbbdf625ewwesdfsddsffdsrefrefrenhgghjnhjkhjnjhnbdfcckhkgvkgk
 - ⚡ Fun fact: ...444gl54666369322222655236egrdsffdsfdsafsdghfgdfgdg
 erresdfasdsf5235412531212rtggtrrtwerwwghnhjjhghjgghjbddbfdbbhgffg
